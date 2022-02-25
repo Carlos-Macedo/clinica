@@ -1,2 +1,2 @@
 # rantiy
-Page of Bussines
+Page Informativo 
